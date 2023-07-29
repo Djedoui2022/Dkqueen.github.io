@@ -1,2 +1,3 @@
 # Welcome to my Art Gallery
-# you can 
+# Website is currently on maintenance 
+# you can find all my plateform on : https://linktr.ee/dkqueen 
